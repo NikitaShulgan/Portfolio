@@ -4,6 +4,8 @@
 1. [Стипендия "Wargaming" 1](https://bsu.by/news/24-studenta-bgu-stali-obladatelyami-grantov-konkursa-stipendiya-wargaming-d/)
 2. [Стипендия "Wargamind" 2](https://vk.com/bsu_by?w=wall-94684_59865)
 
+[Моя станица на сайте университета](https://elib.bsu.by/browse?type=author&value=%D0%A8%D1%83%D0%BB%D1%8C%D0%B3%D0%B0%D0%BD%2C+%D0%9D.+%D0%98.)
+
 Список опубликованных научных статей, тезисов:
 
 1. [Материалы XII международной научно-технической конференции "Квантовая электроника", Минск, 18 – 22 ноября 2019 г. / 
