@@ -1,4 +1,4 @@
-# Portfolio
+# Для поступления в магистратуру
 
 Получил 2 стипендии "Wargaming":
 1. [Стипендия "Wargaming" 1](https://bsu.by/news/24-studenta-bgu-stali-obladatelyami-grantov-konkursa-stipendiya-wargaming-d/)
